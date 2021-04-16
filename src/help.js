@@ -231,7 +231,7 @@ ____██_____██
 ║ *NOME: GABRIEL E DANIEL*
 ║ *INSTA: _offgabriel_*
 ║ *WPP: wa.me/+5598984527526*
-║ *YOUTUBE: https://youtube.com/c/caussZ*
+║ *YOUTUBE:  SEM CANAL*
 ║
 ║  *"base do lindo (DARK BOT 4.0)🐊🚩*
 ║  *"kiba não xereka"*
